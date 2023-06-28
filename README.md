@@ -1,3 +1,3 @@
-Vinicius Scheeren, codinome Villager
-Missal||PR 🇧🇷
+- Vinicius Scheeren, codinome Villager
+- Missal||PR 🇧🇷
 
